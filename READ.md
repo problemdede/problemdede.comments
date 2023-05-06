@@ -1,0 +1,1 @@
+Yorum çabası dahası cabası.
